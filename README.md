@@ -9,7 +9,5 @@
 </h1>
 <br>
 
-![Tesla Redesing](https://github.com/user-attachments/assets/c7a0aa4f-2e8a-410a-88d6-98380d6f2d80)
 
-
-
+![Ekran Kayd- 2026-01-05 174124_0_0_x264 (avc)_gif_001](https://github.com/user-attachments/assets/9a807fdf-24f1-41a0-9adc-c813180ac4da)
